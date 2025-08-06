@@ -1,1 +1,2 @@
 # Learn-github
+My name is Thachakorn, but you can call me Benz. I graduated from Chiang Mai Rajabhat University.I have approximately 6 years of experience working in the IT field. My main responsibilities have included various technical tasks and providing support in IT-related areas.I am a team player, detail-oriented, and always eager to learn new things. I’m currently looking for a new and challenging opportunity where I can further apply my experience and contribute to the success of your company.
